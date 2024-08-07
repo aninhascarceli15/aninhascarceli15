@@ -5,3 +5,4 @@ Estou usando este espaço para minha organização e compartilhamento dos meu pr
 Espero que gostem dos conteúdos que irei compartilhar aqui! 
 
 ![](https://media.tenor.com/aI5-MxPX5lYAAAAM/rupert-gnar.gif)
+![](https://media.tenor.com/toP4_y5GPcwAAAAj/love-in-love.gif)
